@@ -10,11 +10,11 @@
 
 [Telegram](https://t.me/techmsafi)
 
-[LinkedIn](https://www.linkedin.com/in/fred-kiptui-72a0421a1) 
+[LinkedIn](https://www.linkedin.com/in/fredkiptui/) 
 
 
 
-Check Updates on Our Blog: [techmsafi](https://techmsafi.com)
+Check Updates on Our Blog: [TechMsafi](https://techmsafi.com)
 
 [Support](https://www.paypal.com/donate/?hosted_button_id=FCG3PGKHDLAVY)
 
