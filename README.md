@@ -5,6 +5,3 @@
 ### MY SOCIALS:
 
 [LinkedIn](https://www.linkedin.com/in/fredkiptui/) 
-
-
-Check Updates on Our Blog: [TechMsafi](https://techmsafi.com)
