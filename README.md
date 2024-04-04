@@ -4,20 +4,7 @@
 
 ### MY SOCIALS:
 
-[YouTube Tutorials](https://youtube.com/c/TechMsafi) 
-
-[Facebook Posts](https://facebook.com/techmsafi)
-
-[Telegram](https://t.me/techmsafi)
-
 [LinkedIn](https://www.linkedin.com/in/fredkiptui/) 
 
 
-
 Check Updates on Our Blog: [TechMsafi](https://techmsafi.com)
-
-[Support](https://www.paypal.com/donate/?hosted_button_id=FCG3PGKHDLAVY)
-
-
-
-## *Always @techmsafi and enjoy your endeavours.*
